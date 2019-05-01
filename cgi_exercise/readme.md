@@ -1,1 +1,1 @@
-Please refer to the rtf document in the email.
+Please refer to the pdf document in the email.
